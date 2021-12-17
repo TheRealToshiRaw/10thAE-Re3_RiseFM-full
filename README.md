@@ -10,7 +10,7 @@ Developers need to be paid and fully supported for their job,
 you have to stay legal and i am not responsible for what you do  ;)  
 
 
-# Now let's feel the live Planetarium nightclub taste of Rise FM hosted by Andre "the Accelerator":  
+# Now let's feel the live Planetarium nightclub's taste of RiseFM hosted by Andre "the Accelerator":  
 
 Radios on gta3 has changed through different iterations of the game,  
 here is the complete Rise FM iconic tracklist;  
